@@ -35,4 +35,24 @@ Thus, Open Collective Design  particularly engage in design-related tasks such a
 • User research
 
 • Design research and documentation
+Excellent information. Very useful to everyone and thanks for sharing this.
 
+<a href="https://www.wikitechy.com/technology/hack-wifi-passwords-ubuntu/">HOW TO HACK WIFI PASSWORD USING UBUNTU</a>
+
+<a href="https://www.wikitechy.com/interview-questions/paramatrix-interview-questions-and-answers">PARAMATRIX TECHNOLOGIES PVT LTD APTITUDE PAPERS</a>
+
+<a href="https://www.wikitechy.com/online-videos/company-interview-questions-and-answers/">WIKITECHY COMPANY</a>
+
+<a href="https://www.wikitechy.com/interview-questions/paramatrix-interview-questions-and-answers">PARAMATRIX APTITUDE QUESTIONS PDF</a>
+
+<a href="https://www.wikitechy.com/resume/bca-fresher-resume-sample/">BCA FRESHER RESUME FORMAT IN WORD</a>
+
+<a href="https://www.wikitechy.com/tutorials/ethical-hacking/whatsapp-hacking-tutorial/unlock-from-whatsapp">WHATSAPP UNBLOCK HACK APK</a>
+
+<a href="https://www.wikitechy.com/interview-questions/verbal-ability/tenses-and-articles/she-most-of-her-time-to-music">SHE MOST OF HER TIME TO MUSIC</a>
+
+<a href="https://www.wikitechy.com/forum/d/354-solved-json-python-json-loads-shows-valueerror-extra-data">RAISE JSONDECODEERROR("EXTRA DATA", S, END)</a>
+
+<a href="https://www.wikitechy.com/technology/hack-android-iphone-pc-connected-wifi-network/">HOW TO HACK IPHONE CONNECTED TO MY WIFI</a>
+
+<a href="https://www.wikitechy.com/technology/hack-linksys-router-wifi/">LINKSYS SMART WIFI TOOLS GUEST PASSWORD HACK</a>
